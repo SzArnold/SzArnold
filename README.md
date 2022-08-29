@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @SzArnold
-- 👀 GYM/Sport
+- 👋 Hi guys my name is Arnold Szasz, my friends call me Arnold.
+- 👀 GYM/Sport/online trading/crypto
 - 🌱 
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ... future projects/new ideas/
 - 📫 How to reach me ...
 
 <!---
